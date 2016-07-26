@@ -1,4 +1,1 @@
-# -www.neuronet.pl
-"'`/>test
-
-ererererer
+# [Oprogramowanie dedykowane](www.neuronet.pl)
