@@ -1,1 +1,1 @@
-# [Oprogramowanie dedykowane](www.neuronet.pl)
+# [Oprogramowanie dedykowane](https://www.neuronet.pl)
